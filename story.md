@@ -11,7 +11,7 @@ He said I had to cart them down the ladder in me hod.
 Well clearing all those br1cks by hand, it seemed so very slow
 So I hoisted up a barrel and secured the rope below
 But in my haste to do the job, I was too blind to see
-That a barrel ful of building bricks is heavier than me.
+That a barrel full of building bricks is heavier than me.
 
 So when I had untied the rope, the barrel fell like lead
 And clinging tightly to the rope I started up instead
