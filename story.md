@@ -1,6 +1,6 @@
 Dear Sir I write this note to inform you of my plight
-And at the time of writing I am not a pretty sight
-My body is all black and blue, my face a deathly gray
+And at the tme of writing I am not a pretty sight
+My body is all black and blue, my face a deathly grey
 I write this note to tell why Paddy's not at work today
 
 While working on the fourteenth floor, some bricks I had to clear
