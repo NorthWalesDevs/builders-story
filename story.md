@@ -1,9 +1,9 @@
 Dear Sir I write this note to inform you of my plight
 And at the tme of writing I am not a pretty sight
-My body is all black and blue, my face a deathly gray
+My body is all black and blue, my face a deathly grey
 I write this note to tell why Paddy's not at work today
 
-While working on the fourteenth floor, some bricks I ad to clear
+While working on the fourteenth floor, some bricks I had to clear
 And to throw them down from off the top seemed quite a good idea
 But the gaffer wasn't very pleased, he was an awful sod
 He said I had to cart them down the ladder in me hod.
@@ -11,7 +11,7 @@ He said I had to cart them down the ladder in me hod.
 Well clearing all those br1cks by hand, it seemed so very slow
 So I hoisted up a barrel and secured the rope below
 But in my haste to do the job, I was too blind to see
-That a barrel ful of building bricks is heavier than me.
+That a barrel full of building bricks is heavier than me.
 
 So when I had untied the rope, the barrel fell like lead
 And clinging tightly to the rope I started up instead
